@@ -4,3 +4,6 @@
 - **Grade:** 12th (2020)
 
  ![Chicken Joe](https://pbs.twimg.com/profile_images/1019631029093453825/1UHwRZZ2.jpg)
+ 
+# Summary 
+ Hi im Joe Siegel a senior at Brockton Highschool I like watching esports and watching movies
