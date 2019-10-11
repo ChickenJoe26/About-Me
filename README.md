@@ -16,4 +16,10 @@
  - I played baseball for 10 years
  - PHD in pop culture 
  
+ # Hobbies
+ - Video Games
+ - Movies
+ - Boston Sports
+ - Go Karting
+ - Rock Climbing
 
