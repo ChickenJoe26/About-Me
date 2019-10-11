@@ -6,7 +6,7 @@
  ![Chicken Joe](https://pbs.twimg.com/profile_images/1019631029093453825/1UHwRZZ2.jpg)
  
 # Summary 
- Hi im Joe Siegel a senior at Brockton Highschool I like watching esports and watching movies
+ Hi im Joe Siegel a senior at Brockton Highschool I like watching esports and watching movies. I spend a good majority of my time either at work or watching movies with my girlfiend of almost 2 years. 
 
 # Family
 My family is awesome. My parents are really cool and i have a brother that I can tollerate, what else can I ask for? My mom works as a paralegal and my dad makes video games. My brother is a freshman at BHS.
@@ -22,6 +22,7 @@ My family is awesome. My parents are really cool and i have a brother that I can
  - Boston Sports
  - Go Karting
  - Rock Climbing
+ - Tennis 
 
 # Favorite Websites
 - [Reddit](https://www.reddit.com/)
