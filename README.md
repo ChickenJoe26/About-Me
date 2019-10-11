@@ -26,6 +26,5 @@
 # Favorite Websites
 - [Reddit](https://www.reddit.com/)
 - [Youtube](https://www.youtube.com)
-- [Twitch](https://www.twitch.tv)
-- 
+- [Twitch](https://www.twitch.tv) 
 
